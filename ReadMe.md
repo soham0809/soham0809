@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking for internship <br>I'm looking to collaborate with developers<br>I'm looking for help in bug fixes <br>Ask me about WebDev, AIML <br>Fun Fact IDK anything but I know
+I'm currently looking for full-time roles <br>I'm looking to collaborate with developers<br>I'm looking for help in bug fixes <br>Ask me about WebDev, AIML <br>Fun Fact IDK anything but I know
 
 
 ## 🌐 Socials:
